@@ -8,8 +8,8 @@ Liste over bøker vi har lest:
 5. Hurins barn
 6. lord of the flies
 7. The Prince
-8. 1984
-9.Coddling of the american mind
+8. 1984 
+9. Coddling of the american mind
 10. Fear - Trump in the white house
 11. Hitchhikers guide to the galaxy
 12. Paradis
