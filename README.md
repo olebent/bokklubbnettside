@@ -24,6 +24,9 @@ Liste over bøker vi har lest:
 21. Blood meridian
 
 
-
+Oppmøte siste tre møter:
+xx.xx.2022:
+xx.03.2023:
+02.12.2023: Nemansj, Byråkraten, Bøddelen, Whip, Marius (pending CFO), Odd, Ruben
 
 Notater fra møter:
