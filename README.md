@@ -1,6 +1,6 @@
-# bokklubbnettside
-BK
-Liste over bøker vi har lest:
+# Bokklubben
+
+### Liste over bøker vi har lest:
 1. The spy who came in from the cold
 2. On the road
 3. The day of the jackal
@@ -24,9 +24,13 @@ Liste over bøker vi har lest:
 21. Blood meridian
 
 
-Oppmøte siste tre møter:
-xx.xx.2022:
-xx.03.2023:
-02.12.2023: Nemansj, Byråkraten, Bøddelen, Whip, Marius (pending CFO), Odd, Ruben
+## Oppmøte siste tre møter:
+### xx.xx.2022:
 
-Notater fra møter:
+### xx.03.2023: 
+
+
+### 02.12.2023 Hos Eirik:
+Nemansj, Byråkraten, Bøddelen, Whip, Marius (pending CFO), Odd, Ruben
+
+## Notater fra møter:
