@@ -2,28 +2,26 @@
 
 ### Liste over bøker vi har lest:
 1. The spy who came in from the cold
-The day of the jackal
- 
-The Prince
-1984 
-
-2. On the road (2017)
-3. Hurins barn (2017)
-4. Nomad (2017)
-5. Fear - Trump in the white house (2018)
-6. Physics of the future (2018)
-7. lord of the flies (2019)
-8. Hitchhikers guide to the galaxy (2019)
-9.  Coddling of the american mind (2019?)
-10. How to invent everything (2020)
-11. The name of the wind (2020)
-12. Mythos (2021)
-13. Dune (2022)
-14. Paradis (2022)
-15. Satanic verses (2022)
+? The day of the jackal
+? The Prince
+? 1984 
+3. On the road (2017)
+4. Hurins barn (2017)
+5. Nomad (2017)
+6. Fear - Trump in the white house (2018)
+7. Physics of the future (2018)
+8. lord of the flies (2019)
+9. Hitchhikers guide to the galaxy (2019)
+10.  Coddling of the american mind (2019?)
+11. How to invent everything (2020)
+12. The name of the wind (2020)
+13. Mythos (2021)
+14. Dune (2022)
+15. Paradis (2022)
+16. Satanic verses (2022)
 - Etter ette mista vi boka i 2 år - 
- Neuromancer (?)
- The Gunslinger (?)
+17.? Neuromancer (?)
+18.? The Gunslinger (?)
 21. Blood meridian (2024)
 22. Dune Messiah (2024)
 
