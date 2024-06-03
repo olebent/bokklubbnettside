@@ -2,9 +2,13 @@
 
 ### Liste over bøker vi har lest:
 1. The spy who came in from the cold
+
 ? The day of the jackal
+
 ? The Prince
+
 ? 1984 
+
 3. On the road (2017)
 4. Hurins barn (2017)
 5. Nomad (2017)
@@ -18,12 +22,11 @@
 13. Mythos (2021)
 14. Dune (2022)
 15. Paradis (2022)
-16. Satanic verses (2022)
-- Etter ette mista vi boka i 2 år - 
-17.? Neuromancer (?)
-18.? The Gunslinger (?)
+16. Satanic verses (2022)  Etter dette mista vi boka i 2 år
+17. Neuromancer (?)
+18. The Gunslinger (?)
 21. Blood meridian (2024)
-22. Dune Messiah (2024)
+22. Dune Messiah (2024) Boka tilbake!
 
 
 
@@ -32,10 +35,9 @@
 ### 04.06 2022 Hos Ruben:  Paradis innstemt
 ### 03.09.2022: Hos Alex H.: Satanic Verses innstemt
 Mistet boka her!
-
-### xx.03.2023: 
-
-### 02.12.2023 Hos Eirik: Blood Meridian innstemt?
+### ??.??.????
+### ??.03.2023: 
+### 02.12.2023 Hos Erik: Blood Meridian innstemt?
 Nemansj, Byråkraten, Bøddelen, Whip, Marius (pending CFO), Odd, Ruben
 
 ### 01.06.2024 Hos Marius: Dune Messiah innstemt:
