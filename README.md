@@ -1,14 +1,10 @@
 # Bokklubben
 
 ### Liste over bøker vi har lest:
-1. The spy who came in from the cold
-
-? The day of the jackal
-
-? The Prince
-
-? 1984 
-
+1. The spy who came in from the cold ???
+2. The day of the jackal ???
+3. The Prince ???
+4. 1984 ??? 
 3. On the road (2017)
 4. Hurins barn (2017)
 5. Nomad (2017)
