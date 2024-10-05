@@ -1,10 +1,10 @@
 # Bokklubben
 
 ### Liste over bøker vi har lest:
-1. The spy who came in from the cold ???
-2. The day of the jackal ???
-3. The Prince ???
-4. 1984 ??? 
+1. The spy who came in from the cold (???)
+2. The day of the jackal (???)
+3. The Prince (???)
+4. 1984 (???)
 3. On the road (2017)
 4. Hurins barn (2017)
 5. Nomad (2017)
@@ -23,12 +23,13 @@
 18. The Gunslinger (?)
 21. Blood meridian (2024)
 22. Dune Messiah (2024) Boka tilbake!
+23. Ekko - et essay om algoritmer og begjær (2024)
 
 
 
 ## Oppmøte siste møter:
 ### 05.03.2022 Hos Jokke: Dune innstemt
-### 04.06 2022 Hos Ruben:  Paradis innstemt
+### 04.06 2022 Hos Ruben: Paradis innstemt
 ### 03.09.2022: Hos Alex H.: Satanic Verses innstemt
 Mistet boka her!
 ### ??.??.????
@@ -41,3 +42,8 @@ Boka er gjenfunnet!
 Marius, Odd, Joachim, Dani, Ole
 Mye bra mat i pinnekjøttpølser, Sjampis og jordbær
 Neste møte: Hovden 14.sept 2024
+
+### 28.09.2024 Hovden II: Ekko innstemt:
+Marius, Odd, Joachim, Dani, Ole, MariusK
+Mye bra mat i burger, portvin og Limoncello
+Neste møte: 18. januar 2025 i Oslo
