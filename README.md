@@ -24,7 +24,7 @@
 21. Blood meridian (2024)
 22. Dune Messiah (2024) Boka tilbake!
 23. Ekko - et essay om algoritmer og begjær (2024)
-24. Huden er det elastiske hylster der omgiver hele legemet
+24. Huden er det elastiske hylster der omgiver hele legemet (2025)
 
 ### 28.09.2024 Oslovandring med ZZ Pizza: Huden er det elastiske ... innstemt
 Marius, Odd, Nemansj, Ole, MariusK
