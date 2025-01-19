@@ -24,18 +24,17 @@
 21. Blood meridian (2024)
 22. Dune Messiah (2024) Boka tilbake!
 23. Ekko - et essay om algoritmer og begjær (2024)
+24. Huden er det elastiske hylster der omgiver hele legemet
 
+### 28.09.2024 Oslovandring med ZZ Pizza: Huden er det elastiske ... innstemt
+Marius, Odd, Nemansj, Ole, MariusK
+Løksupppepizza, PEPPERONI, Wolt-burger og tour de Vålerenga
+Neste møte: 29. mars 2025 i Kristiansand (hos Odd)
 
-
-## Oppmøte siste møter:
-### 05.03.2022 Hos Jokke: Dune innstemt
-### 04.06 2022 Hos Ruben: Paradis innstemt
-### 03.09.2022: Hos Alex H.: Satanic Verses innstemt
-Mistet boka her!
-### ??.??.????
-### ??.03.2023: 
-### 02.12.2023 Hos Erik: Blood Meridian innstemt?
-Nemansj, Byråkraten, Bøddelen, Whip, Marius (pending CFO), Odd, Ruben
+### 28.09.2024 Hovden II: Ekko innstemt:
+Marius, Odd, Joachim, Dani, Ole, MariusK
+Mye bra mat i burger, portvin og Limoncello
+Neste møte: 18. januar 2025 i Oslo
 
 ### 01.06.2024 Hos Marius: Dune Messiah innstemt:
 Boka er gjenfunnet!
@@ -43,7 +42,11 @@ Marius, Odd, Joachim, Dani, Ole
 Mye bra mat i pinnekjøttpølser, Sjampis og jordbær
 Neste møte: Hovden 14.sept 2024
 
-### 28.09.2024 Hovden II: Ekko innstemt:
-Marius, Odd, Joachim, Dani, Ole, MariusK
-Mye bra mat i burger, portvin og Limoncello
-Neste møte: 18. januar 2025 i Oslo
+### 02.12.2023 Hos Erik: Blood Meridian innstemt?
+Nemansj, Byråkraten, Bøddelen, Whip, Marius (pending CFO), Odd, Ruben
+### ??.03.2023: 
+### ??.??.????
+### 03.09.2022: Hos Alex H.: Satanic Verses innstemt
+Mistet boka her!
+### 04.06 2022 Hos Ruben: Paradis innstemt
+### 05.03.2022 Hos Jokke: Dune innstemt
