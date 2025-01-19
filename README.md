@@ -1,6 +1,4 @@
-# Bokklubben
-
-### Liste over bøker vi har lest:
+### Bøker vi har lest:
 1. The spy who came in from the cold (???)
 2. The day of the jackal (???)
 3. The Prince (???)
