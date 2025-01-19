@@ -27,7 +27,7 @@
 
 ---
 
-### 28.09.2024 Oslovandring med ZZ Pizza: Huden er det elastiske ... innstemt
+### 18.01.2025 Oslovandring med ZZ Pizza: Huden er det elastiske ... innstemt
 _Marius, Odd, Nemansj, Ole, MariusK_
 Løksupppepizza, PEPPERONI, Wolt-burger og tour de Vålerenga
 
